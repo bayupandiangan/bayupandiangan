@@ -9,9 +9,9 @@ I'm a passionate and curious individual with a background in Computer Science an
 - 📊 I love exploring data and creating meaningful insights through data visualization and analysis.
 - 🚀 I'm constantly learning and exploring new technologies to expand my skill set and stay up-to-date with industry trends.
 - 💬 Feel free to reach out to me for discussions on tech, collaboration opportunities, or just to say hi!
-- 📫 You can reach me via email at bayuurip@example.com or connect with me on LinkedIn [here](https://www.linkedin.com/in/bayuurip).
+- 📫 You can reach me via email at bayuurip60@gmail.com or connect with me on LinkedIn [here](https://www.linkedin.com/in/bayu-pandiangan/).
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm an avid gamer and enjoy playing strategy games in my free time. Also, I have a pet cat named Pixel who occasionally walks over my keyboard while I code!
+- ⚡ Fun fact: I'm an avid gamer and enjoy playing strategy games in my free time. Also, I have a pet cat named rayan who occasionally walks over my keyboard while I code!
 
 Let's connect and build something amazing together! 😊
 
