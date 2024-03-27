@@ -1,4 +1,4 @@
-### Hi there, I'm Bayu Urip Pandiangan! 👋
+### Hi, I'm Bayu Urip Pandiangan! 👋
 
 I'm a passionate and curious individual with a background in Computer Science and a keen interest in leveraging technology to solve real-world problems. Here's a bit more about me:
 
